@@ -13,3 +13,6 @@ Product Buds: https://join.slack.com/t/productbuds/shared_invite/zt-szw23v3r-Qa3
 Product-Led Alliance: https://join.slack.com/t/productled/shared_invite/zt-njusd7xt-iLgl8Ywp_x3ueqoY2Vy73A <br/>
 Mind the Product: https://join.slack.com/t/mindtheproduct/shared_invite/zt-4h9mzsyr-SvSggVTaY59DtPSxk5KH8w <br/>
 ProductHive: https://join.slack.com/t/product-hive/shared_invite/zt-t6hw9vg7-7PIKSysjnrelHEg4~5k55Q <br/>
+Black Product Managers: https://www.blackproductmanagers.com/apply <br/>
+PM HQ: https://productmanagerhq.com/join-the-community/ <br/>
+Product Coalition: https://members.productcoalition.com/
